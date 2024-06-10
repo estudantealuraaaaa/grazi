@@ -1,4 +1,4 @@
-*### boas vindas ao perfil 💙*
+*### boas vindas ao meu perfil 💙*
 
 meu nome é grazielle
 
